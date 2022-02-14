@@ -1,1 +1,1 @@
-fzjysj.com,kmldz.com,goodhhs.com,hzktms.com
+fzjysj.com,kmldz.com,goodhhs.com,hzktms.com,weex.info
